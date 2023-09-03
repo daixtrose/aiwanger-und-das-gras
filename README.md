@@ -58,9 +58,9 @@
 
     Mir ist nicht in Erinnerung, ob noch weitere Personen zum Direktor einbestellt wurden. An eine mögliche Sitzung des Disziplinarausschusses kann ich mich nicht erinnern.
 
-14. Wieso haben Sie gegenüber der Schulleitung die Verantwortung für das Flugblatt übernommen?
+14. Wieso haben Sie gegenüber der Schulleitung die Verantwortung für die Drogen übernommen?
 
-    Ich weiß nicht, ob und was ich an Verantwortung für das Flugblatt übernommen habe. Nach dem Auffinden des Flugblattes in der Schultasche wurde mir mit der Polizei gedroht. Als Ausweg wurde mir angeboten, ein Referat zu halten. Darauf ging ich unter Druck ein. Damit war die Sache wohl für die Schule erledigt.
+    Ich weiß nicht, ob und was ich an Verantwortung für die Drogen übernommen habe. Nach dem Auffinden der Drogen in der Schultasche wurde mir mit der Polizei gedroht. Als Ausweg wurde mir angeboten, ein Referat zu halten. Darauf ging ich unter Druck ein. Damit war die Sache wohl für die Schule erledigt.
 
 15. Haben Sie vor der Schulleitung zugegeben bzw. eingestanden, dass die Drogen von Ihnen stammen?
 
