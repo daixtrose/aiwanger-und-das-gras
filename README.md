@@ -98,7 +98,7 @@
 
     Der Vorfall war ein einschneidendes Erlebnis für mich. Er hat wichtige gedankliche Prozesse angestoßen.
 
-24. Wie positionieren Sie sich zu dem Vorwurf, dass auch Ihr weiteres Verhalten bzw. Auftreten zur Schulzeit eine Nähe zu Drogendealern nahegelegt habe, weshalb der Verdacht auf Sie gefallen sei (lt. Presseberichten angeblich Imitationen Yoko One und John Lennons Reden, "Peace Handzeichen")?
+24. Wie positionieren Sie sich zu dem Vorwurf, dass auch Ihr weiteres Verhalten bzw. Auftreten zur Schulzeit eine Nähe zu Drogendealern nahegelegt habe, weshalb der Verdacht auf Sie gefallen sei (lt. Presseberichten angeblich Imitationen Yoko Ono und John Lennons Reden, "Peace Handzeichen")?
 
 25. Gab es weitere mögliche linksradikale Aktivitäten in der Vergangenheit.
 
